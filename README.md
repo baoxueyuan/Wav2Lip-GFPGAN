@@ -13,3 +13,7 @@ Projects referred:
 Video sources:  
 1. https://www.youtube.com/watch?v=39w_zYB7AVM&t=0s
 2. https://www.youtube.com/watch?v=LQCQym6hVMo&t=0s
+
+
+## 中文教程地址
+https://yv2c3kamh3y.feishu.cn/docx/I8OLdvQSuoSRHXx5Hf2cJL32nE6
